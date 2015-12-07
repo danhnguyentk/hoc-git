@@ -1,3 +1,1 @@
- Nguoi yeu cua toi
-ban khoe chu 
-sao mat ban buon the
+ anh met lam em a, huhu chan em qua di thoi
